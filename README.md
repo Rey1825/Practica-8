@@ -1,5 +1,5 @@
 # Practica-8
-![image](https://github.com/Rey1825/Practica-8/assets/149071077/482dc1f4-0cb0-411a-80ce-bb3f9f08bffc)
+![image](https://github.com/Rey1825/Practica-8/assets/149071077/ee90e729-f7c4-4765-8896-7d464e179f1f)
 
 ![image](https://github.com/Rey1825/Practica-8/assets/149071077/e2129e9e-893d-4f9c-a50d-0490f6ab3b2c)
 
